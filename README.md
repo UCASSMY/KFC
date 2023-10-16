@@ -1,3 +1,4 @@
 # KFC
 THE BEGIN OF THE STORY ABOUT US IS FROM A KFC.
-Cherish it.
+I do love u the most.
+Love Day 10：10
